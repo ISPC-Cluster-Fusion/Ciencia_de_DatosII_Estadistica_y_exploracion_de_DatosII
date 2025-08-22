@@ -23,6 +23,6 @@
 | Molina, Mauricio Leonel           | [Mauri-Molina10](https://github.com/Mauri-Molina10)     |
 | Robles, Emilce Lucia Nicole       | [emirobles](https://github.com/emirobles)               |
 | Sosa, Sebastian Cristhian         | [Cristhhh](https://github.com/Cristhhh)                 |
-| Virinni, Marco                    | [alanapolitana](https://github.com/MarcoVirinni)       |
+| Virinni, Marco                    | [MarcoVirinni](https://github.com/MarcoVirinni)       |
 | Marini, Ian Denis                 | [IanMarini](https://github.com/IanMarini)               |
 
