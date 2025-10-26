@@ -17,6 +17,6 @@
 [Ver Poster](https://drive.google.com/file/d/1e2tw5mz93Rg8q9vKYYJHMknuffygPo-M/view?usp=sharing)
 
 ### Documento Segundo Cuatrimestre  
-[Ver Documento Segundo Cuatrimestre](https://drive.google.com/file/d/1e2tw5mz93Rg8q9vKYYJHMknuffygPo-M/view?usp=sharing)
+[Ver Documento Segundo Cuatrimestre](https://drive.google.com/file/d/1X1z3T2EVzNRUh-Xhjh7ejRn7Bdll9miP/view?usp=sharing)
 
 ---
